@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @julianxrodriguez
-- 👀 I’m interested in technology, music and streetwear.
+- 👀 I’m interested in technology, music and streetwear. I enjoy playing football.
 - 🌱 I’m currently learning coding and computer science.
 - 📫 Reach me at julianxrodriguezz@gmail.com
 
